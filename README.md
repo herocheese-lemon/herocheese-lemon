@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning HTML code
 - 📫 How to reach me kitlowkey0@gmail.com
 - 😄 Pronouns: they/them
-- ⚡ Fun fact: l can eat half of a watermelon in 2:30
+- ⚡ Fun fact: l can eat half of a watermelon in 2:30min
